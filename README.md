@@ -1,16 +1,15 @@
-### Hi there 👋
+### 안녕하세요 👋
 
-<!--
-**sdnight5/sdnight5** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+디나입니다만
 
-Here are some ideas to get you started:
+한별이 정말 좋아요
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+솔브드 프로필이에요 = https://solved.ac/profile/sdnight5
+
+리듬게임 추천해주세요
+
+:thinking: 정말 심심합니다. :sob:
+
+이상한짓 많이하는 나는 **디나** / $sdnight5$
+
+전골먹방 못참지
